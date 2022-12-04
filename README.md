@@ -1,2 +1,2 @@
 # proyecto-13
-gg ez
+no funny funny
